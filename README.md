@@ -9,7 +9,7 @@
 现在就加入 cherrylink.me
 
  ---
- #### :arrow_double_down: [官网链接](https://cherrylink.me)
+ #### :arrow_double_down: [官网链接](https://chyvpn.cyou/)
  ---
  ### 免费福利
   :gift: 下载软件，免费线路试用
