@@ -6,7 +6,7 @@
 使用新一代加密协议，隐私保护，稳定高速，看视频无痕不卡顿。
 全客户端支持，一个账号，全端加速，iOS，Android，windows，mac全平台可用。
 最低至0.4x 元/日，更有20%返现。
-现在就加入 cherrylink.me
+现在就加入 https://chyvpn.cyou/
 
  ---
  #### :arrow_double_down: [官网链接](https://chyvpn.cyou/)
