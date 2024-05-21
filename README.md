@@ -6,10 +6,10 @@
 使用新一代加密协议，隐私保护，稳定高速，看视频无痕不卡顿。
 全客户端支持，一个账号，全端加速，iOS，Android，windows，mac全平台可用。
 最低至0.4x 元/日，更有20%返现。
-现在就加入 https://chyvpn.cyou/
+现在就加入 https://chyvpn.com/
 
  ---
- #### :arrow_double_down: [官网链接](https://chyvpn.cyou/)
+ #### :arrow_double_down: [官网链接](https://chyvpn.com/)
  ---
  ### 免费福利
   :gift: 下载软件，免费线路试用
